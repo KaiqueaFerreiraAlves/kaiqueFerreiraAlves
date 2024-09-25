@@ -1,5 +1,5 @@
 # kaiqueFerreiraAlves
-Gosto de er livros
+Gosto de ler livros
 Gosto muito de One Piece
 Adoro jogos de tabuleiro
 Gosto muito de assistir "Eu a Patroa e AS Crianças"
